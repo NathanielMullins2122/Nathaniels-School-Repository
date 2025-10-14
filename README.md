@@ -1,1 +1,1 @@
-This lab was difficult because of the different questions I wanted to ask for the game. Getting the picture to view was difficult. 
+This lab was difficult because of the different questions I wanted to ask for the game. Getting the picture to view was difficult. I also had a rough time understanding GitHub and how to work it. 
